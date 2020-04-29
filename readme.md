@@ -17,6 +17,6 @@
 # 寄付及びサポートしていただける方
 サポート方法
 ## Amazon欲しい物リスト
-下記URLからサポートしていただけると大変助かります。
+下記URLからサポートしていただけると大変助かります。  
 https://www.amazon.jp/hz/wishlist/ls/257XISXLXXXD3?ref_=wl_share
 
